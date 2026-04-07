@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on making my resume career ready<br>🤝 I’m looking for help with exploring more courses for cybersecurity<br>🌱 I’m currently learning ethical hacking<br>💬 Ask me about<br>🎵 the neighbourhood
+🔭 I’m currently working on making my resume career ready<br>🤝 I’m looking for help with exploring more courses for cybersecurity<br>🌱 I’m currently learning ethical hacking<br>🎵 the neighbourhood
 
 
 ## 🌐 Socials:
